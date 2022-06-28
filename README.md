@@ -15,6 +15,7 @@
 - ⚡ Fun fact I Love Photography and Cricket
 - 💸 Loves to invest and study stock market
  - ❤️ I love to code  <img src="https://media.giphy.com/media/WUlplcMpOCEmTGBtBW/giphy.gif" width="30"/>
+ - ✌️ Let's connect and grow together
 
 ## :mailbox: How to reach me : 
 [<img src="https://img.icons8.com/fluency/48/000000/gmail-new.png"/>](mailto:manishkhanal9827715249@gmail.com)
